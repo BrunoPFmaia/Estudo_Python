@@ -1,1 +1,1 @@
-Atividades em sala
+Atividade em sala
